@@ -1,1 +1,1 @@
-# GA PAHAM LAGI SAMA KAMU
+# surender
