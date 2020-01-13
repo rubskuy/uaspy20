@@ -1,2 +1,1 @@
-# uaspy20
-Bismillah
+# GA PAHAM LAGI SAMA KAMU
